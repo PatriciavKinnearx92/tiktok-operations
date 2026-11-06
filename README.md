@@ -188,6 +188,9 @@
 6. **Exolyt**  
    [exolyt.com](https://exolyt.com/en/guides/tiktok-money-calculator)  
 
+7. **TKMetrics**  
+   [tkmetrics.com](https://tkmetrics.com/)
+
 ---
 
 ## 账号管理工具
